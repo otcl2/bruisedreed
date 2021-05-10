@@ -2,6 +2,6 @@
 
 Launching soon.......
 
-"Burised Reed" is - charitable organization committed to rebuilding broken lives.
+"Burised Reed" - a charity organization committed to rebuilding broken lives.
 
 Please check back.....
