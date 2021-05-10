@@ -1,7 +1,7 @@
-## Welcome to Burised Reed Ministries
+## Burised Reed Ministries
 
 Launching soon.......
 
-"Burised Reed" is a charitable trust committed to rebuilding broken lives.
+"Burised Reed" is - charitable organization committed to rebuilding broken lives.
 
-Please check back.
+Please check back.....
