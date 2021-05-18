@@ -2,6 +2,6 @@
 
 Launching soon.......
 
-An initiative to Rebuild Broken Lives.
+An initiative to rebuild broken lives.
 
 Please check back.....
