@@ -2,6 +2,6 @@
 
 Launching soon.......
 
-"Burised Reed" - a community development organization to rebuild broken lives.
+"Burised Reed" - an initiative to Rebuild Broken Lives.
 
 Please check back.....
