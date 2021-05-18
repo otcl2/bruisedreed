@@ -1,7 +1,7 @@
-## Burised Reed - Rebuilding broken lives.
+## Burised Reed - Rebuilding Broken Lives.
 
 Launching soon.......
 
-"Burised Reed" - an initiative to Rebuild Broken Lives.
+An initiative to Rebuild Broken Lives.
 
 Please check back.....
